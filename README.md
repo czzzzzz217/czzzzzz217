@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @czzzzzz217
 - 👀 I’m interested in sleeping
 - 🌱 I’m currently learning nothing
-- 💞️ I’m looking to collaborate on soulmate
+- 💞️ I’m looking to collaborate on being a werido
 - 📫 How to reach me : willchain2003@gmail.com
 
 <!---
